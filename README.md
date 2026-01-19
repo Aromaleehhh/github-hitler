@@ -2,7 +2,7 @@ AROMAL J. present
 Devanandha. L.S = fake friend
 Anjali S
 Amrutha R S 
-Aparna A
+Aparna A present
 Aparna A
 Anjana Sugunan.B 
 Devananda Joshy Present 
